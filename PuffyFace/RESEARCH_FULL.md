@@ -16,6 +16,12 @@
 - "In the mirror I look cool or decent. In pictures, it looks like half my face is melting down... It really messes with me because I don't really understand what I look like." Insight: Dysmorphia isn't just about hating a feature; it's about a terrifying lack of a stable visual identity.
 - "And then I’ll get a picture taken from my head down and.. Jesus... I get so ashamed, so embarrassed." Insight: Physical shame is triggered instantly by specific "bad" angles, overriding any previous positive self-talk.
 - "I feel like I look like a frog faced, Wang eyed troll." Insight: When the avatar sees a bad photo, they don't just see a flaw; they see themselves as a sub-human or "grotesque" creature.
+- "it really annoys me because it feels like no matter what I do, my face is extremely bloated/puffy." Insight: A sense of helplessness and futility; they are doing the "right" things but getting the "wrong" results.
+- "I become very puffy and honestly look ill." Insight: The puffiness isn't just an aesthetic flaw; it makes them feel like their health is visible failing.
+- "Shit sucks and messes with my self esteem... sorry I dont know why im being a lil wuss" Insight: Significant psychological impact; they feel "weak" for caring about it, yet it dictates their confidence.
+- "I am so sick and tired of it." Insight: This is a long-term, chronic frustration that has reached a breaking point.
+- "I start to look very ugly because of that and I lose my jawline." Insight: Fear of losing their attractiveness and "sculpted" identity to a layer of fluid.
+- "It's really discouraging me from eating if im being honest. Feeling so deflated, I feel like i'm running out of options and feel so lost." Insight: The problem is severe enough to trigger disordered eating patterns and genuine despair.
 
 ## Day-to-Day Struggles
 - "It usually takes hours or even days for this condition to go away." Insight: The "morning" problem effectively ruins the entire day's productivity and self-image.
@@ -28,6 +34,10 @@
 - "Seriously! I hate how it can ruin my day I swear it's like shapeshifting." Insight: A single "bad" reflection has the power to derail their entire emotional state for the day.
 - "I take good pictures but look terrible in person. So I stopped taking pictures so I don’t get accused of cat fishing." Insight: Social interactions are fraught with the anxiety that they are "tricking" people, leading to withdrawal and isolation.
 - "I don't own full length mirrors anymore because I don't want to be constantly reminded." Insight: Their living environment is a minefield of "triggers" they must actively manage or eliminate to survive.
+- "I wake up looking ok but by 7pm I'm a swollen mess..." Insight: The problem is a ticking clock; they feel they have a "limited" window of beauty each day.
+- "I had a day where I'm like I need to eat some carbs to 'think straight'.... my face looks marsh-mellow man the next day." Insight: Constant trade-off between cognitive function/energy and physical appearance.
+- "3 regular meals a day is enough for me to look chubby, on my face, even if my weight appears normal." Insight: They feel they cannot live a "normal" lifestyle without immediate physical "punishment."
+- "I needed lube to take my wedding band this a.m." Insight: The swelling is physical and restrictive, affecting basic daily movements and tasks.
 
 ## Victories
 - "Gua Sha took care of that. I can tell a huge difference... my jawline is far more snatched these days." Insight: Tangible, manual lymphatic drainage provides the most immediate "win" and aesthetic satisfaction.
@@ -39,6 +49,10 @@
 - "I find that if I just keep my face natural I tend to end up looking fine... Acting natural on the other hand makes the difference negligible even to me!!" Insight: Moments of authentic relaxation allow them to bypass the "unnatural" look of a staged pose.
 - "The best thing you can do is set your phone on a table, hit the record button, then walk around... You'll be able to get a good idea of what you look like to strangers." Insight: Video provides a "moving beauty" that feels more honest and less "flattened" than a still photo.
 - "I switched it to mirror image and it looks so much more normal and both sides are the same size." Insight: Simply flipping an image back to the "mirror version" provides instant relief by returning them to the version of themselves they recognise.
+- "my jawline and face gets so angular and sharp and that 'model look' [on low carb]" Insight: They have tasted the "ideal" version of themselves and know it's possible.
+- "Using taurine plus avoiding salty foods has brought my daily puffiness of an average of 8 to an average of 4. . It is a massive difference." Insight: Significant relief found in specific, non-obvious supplementation.
+- "when I worked on my posture and loosened up my neck, my face looked way less swollen, without starving myself." Insight: Realizing the issue might be mechanical (drainage) rather than metabolic (fat).
+- "I also notice that, the weeks before my period... my face becomes quite contoured and I start to feel like I'm at 'the perfect weight!'" Insight: Hormonal cycles provide fleeting glimpses of their desired self.
 
 ## Failures
 - "I've tried: Gua sha and jade rollers, Icing, Limiting sodium, carbs and sugar... Elevating my head... None seem to work!" Insight: Many have tried the "standard" internet advice and found it insufficient, suggesting the root cause is deeper or more complex.
@@ -50,6 +64,10 @@
 - "I gotta do cosmetic surgery (editing) on my face to look the way I’d want to look... And after I’m done, I’m STILL not happy because I know I don’t look like that in real life." Insight: Digital filters are a band-aid that actually increases the pain of the "real" disconnect.
 - "I've even tried looking in the mirror and thinking I look beautiful, then carefully taking a selfie from the same angle etc. It doesn't come out looking ANYTHING like what I'm seeing." Insight: Logic and careful planning fail to bridge the gap between human vision and camera optics.
 - "I've had this issue even between house and hotel mirrors." Insight: Changing their environment doesn't solve the problem because the "truth" remains elusive everywhere.
+- "Guasha but it barely makes a difference and neither does anyone have time every morning." Insight: Traditional "beauty" solutions are viewed as tedious and ineffective.
+- "I drink about 30-50 oz of water daily and eat pretty healthy... why won't my face slim down." Insight: Standard health advice (stay hydrated, eat clean) is failing them.
+- "I've been forked out thousands and have helped me none [at doctors]." Insight: Traditional medicine has often dismissed them or failed to provide a root cause.
+- "starving yourself to reduce some bloating is not the preferred option in any universe." Insight: Drastic caloric restriction is a "failed" solution because it’s unsustainable/dangerous.
 
 ## Goals
 - "I desperately want a solution! I always feel as if there's still extra fluids stuck and it's bothering me." Insight: The goal isn't just to look better, but to stop the physical "pressure" and "heavy" feeling in the tissues.
@@ -61,6 +79,9 @@
 - "I genuinely want to know, not even for vanity purposes. I just want the truth LOL." Insight: The core goal is a "baseline reality" to end the psychological war of "which one is me?"
 - "I’m using this to motivate myself... its just a constant glimpse into a potential midterm future." Insight: They want to use the "best" version of themselves as a blueprint for who they are actually becoming.
 - "I just want to look like I workout." Insight: They are seeking external validation that their hard work is actually visible and not "hidden" by bad lighting or flat images.
+- "I hope my research will lead me to how to fix it down to a steady 0 at all times." Insight: They aren't looking for improvement; they want total eradication of the issue.
+- "I want to know what is wrong with me, why won’t my face slim down because I hate it." Insight: The primary goal is a diagnosis—an "answer" to the mystery.
+- "basically if u add a little muscle u will have less fat at the same weight." Insight: Goal to change body composition to "harden" the look of the face.
 
 ## Beliefs
 - "I think it's a Hashimoto's thing?" Insight: CORE INSIGHT: Many believe the puffiness is an inescapable side effect of autoimmune disease.
@@ -72,6 +93,9 @@
 - "The mirror is the real representation of how you look." Insight: There is a desperate hope that the "3D" and "live" version is the one everyone else sees.
 - "iPhone selfie camera is terrible. It’s so pixelated... it distorts the face of anyone using it." Insight: They believe technology is "lying" to them or actively sabotaging their appearance.
 - "Cameras have a way smaller color range than human eyes. So subtle nuances like shadows get mushed together." Insight: They believe the "vibrancy" of their life is lost when compressed into a digital file.
+- "If you don't drink enough your body will hold onto more water in an effort to avoid dehydration." Insight: A belief in "survival mode" mechanics—the body is working against itself.
+- "It’s not how often you’re eating, it’s what you’re eating. It’ll be salt etc." Insight: Conviction that there is a "hidden trigger" in specific ingredients.
+- "I guess it is something I have a tendency to, my face got bloated often when I was a child." Insight: A belief that this is a genetic "curse" that might be inevitable.
 
 ## Desires
 - "I want to find a solution so I can look like my 'normal' self so I can finally feel pretty, proportionate, and confident." Insight: The desire for "bone structure" to be visible is linked directly to a desire for youthful attractiveness.
@@ -83,6 +107,9 @@
 - "I want to find a mirror that shows the 'real' me so I can stop obsessing over photos so I can finally feel comfortable in public without wondering who I am today." Insight: Identity stability.
 - "I want to understand focal lengths and lighting so I can control how I look so I can stop feeling like a 'deformed' monster in every group photo." Insight: Mastery and control over their own narrative.
 - "I want to look as fit and symmetrical as I do in the gym mirror so I can prove to myself my hard work is paying off so I can have the confidence to date again." Insight: Validation of effort and social belonging.
+- "I want to have a sharp, 'model look' jawline so I can feel attractive so I can stop scrutinizing my face in every mirror." Insight: Desire for external validation and internal peace.
+- "I want to find the specific food trigger so I can eat normally again so I don't have to fear my next meal." Insight: Desire for freedom and a return to "normalcy."
+- "I want my face to match my 'skinny' body so I stop looking 'ill' or 'unhealthy' to others." Insight: Desire for congruence between their effort (fitness) and the result (appearance).
 
 ## Objections
 - "Daily allergy meds... isnt taking [them] so harmfull for your health in the future?" Insight: Fear of long-term side effects from chemical "fixes."
@@ -94,6 +121,9 @@
 - "But is that even closest to what u actually look like in real life tho?" Insight: Even a "good" solution is met with skepticism that it might just be another "magic mirror" lie.
 - "I live in a van... My bathroom doesn’t have a mirror." Insight: Practical/lifestyle constraints can make "constant checking" impossible or difficult.
 - "I couldn't do that [video themselves]. If I videoed myself I'd be traumatized for life." Insight: The fear of "seeing the truth" is sometimes greater than the desire to know it.
+- "Body dysmorphia is just so, so common... it's highly unlikely that your face is actually retaining significant amounts of fat." Insight: They are afraid they are "crazy" or that the problem is all in their head.
+- "starving yourself to reduce some bloating is not the preferred option." Insight: A refusal to sacrifice long-term health for short-term "depuffing."
+- "surgical [solutions] like buccal fat removal... you may look gaunt in your 70's." Insight: Fear of permanent, aging-accelerating side effects from "fast" fixes.
 
 ## Level of Awareness
 - Level: Problem Aware
@@ -105,6 +135,9 @@ Explanation: The audience knows they have a problem (puffiness) and they are act
 - Classification: PROBLEM AWARE.
 - Explanation: The avatar is acutely aware of the problem—the visual disconnect—but is confused by conflicting theories (focal length vs. mere exposure vs. lighting). They are searching for the "why" and a "conclusion on how I really look."
 - "[deleted]: I really wonder, am I homely, or am I attractive, or neither? I feel so ashamed... I don't really know what is going on." Insight: They are stuck in the "gap" of the problem, looking for a definitive answer or "true mirror."
+CORE INSIGHT: Solution Aware to Product Aware.
+The avatar knows they have a "puffy face" (Problem Aware) and they are actively trying various solutions like Gua Sha, Taurine, and low-carb diets (Solution Aware). They are looking for the *specific* supplement, diet protocol, or tool that works for their specific biology.
+- "I’ll definitely try what you already suggested [Taurine/Tyrosine]" Insight: They are at the stage of "scouting" for the specific thing to buy.
 
 ## Emotions & Identity
 - "Before I looked like a squirrel preparing to feed his wife and 8 kids for the winter." Insight: Self-Deprecation. The "puffy" identity feels comical and sub-human.
@@ -119,6 +152,10 @@ Explanation: The audience knows they have a problem (puffiness) and they are act
 - "I feel like there's a beautiful version of myself and a hideous version." Insight: Split Identity. They live with two versions of themselves, creating a modern "Dr. Jekyll and Mr. Hyde" of self-image.
 - "I feel like I look like a thumb. I'm not joking. I don't know how it goes so horribly wrong." Insight: Humiliation. The gap between their "cool" inner self and the "thumb" outer photo causes deep embarrassment.
 - "I have no idea what I actually look like. It’s annoying because I genuinely want to know." Insight: Identity Vacuum. The loss of a stable "mental map" of their own face leads to an existential frustration.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: **The Frustrated Perfectionist.** They identify as someone who "does everything right" and feels cheated.
+- "I'm tired of having to starve in order to look like i don't have a face deformity." Insight: **The Hidden Victim.** They feel their natural state is a "deformity" that must be fought.
+- "I start to look very ugly... and honestly look ill." Insight: **Identity Crisis.** Their face contradicts their fit, "skinny" body, creating a fractured self-image.
+- "when I stop consuming caffeine, my face becomes less swollen and more vibrant." Insight: **The Vitality Seeker.** They equate a slim face with "vibrancy" and life force.
 
 ## Real Customer Language
 - "Moon face" — Why this phrase matters: It’s the clinical-yet-cruel term used for steroid or autoimmune-induced swelling.
@@ -136,6 +173,11 @@ Explanation: The audience knows they have a problem (puffiness) and they are act
 - "Moving beauty" — Why this phrase matters: This is the avatar’s romanticized hope—that they are too dynamic to be captured by a "flat" 2D image.
 - "Glacial weight loss" — Why this phrase matters: Highlights the frustration of effort not being reflected in the "camera truth."
 - "Snapchat saves your photo as a mirror image... that's why you like it." — Why this phrase matters: Acknowledges the "cheat code" they use to feel normal.
+- "Marsh-mellow man" — Why this phrase matters: Describes a total loss of definition; feels soft, bloated, and "un-human."
+- "Moon face" — Why this phrase matters: Clinical-sounding but deeply insulting; implies a round, featureless, glowing-with-fluid look.
+- "Giant face" — Why this phrase matters: Expresses the feeling that the face is disproportionate to the body.
+- "Dead face" — Why this phrase matters: Describes the lack of "glow" or "vibrancy" associated with caffeine-induced puffiness.
+- "Snatched" — Why this phrase matters: The ultimate goal; the opposite of puffy; refers to high-definition bone structure.
 
 ## Visual Cues
 - "I wake up with tons of sweeping and pressure in my eyes/nose." Insight: The visual of "pressure" pushing outward from the inside.
@@ -147,6 +189,9 @@ Explanation: The audience knows they have a problem (puffiness) and they are act
 - "Teddy bears with a small head but HUGE body." Insight: A metaphor for the perspective distortion that makes them feel disproportionate and "freaky."
 - "The moon in pictures [vs. real life]." Insight: A powerful metaphor used multiple times to explain how a "perfect" thing can looks "dull and small" on a camera.
 - "Melt-y faces." Insight: The visual of one side of the face "drooping" or "slanting" in a non-mirrored photo.
+- "I needed lube to take my wedding band off." Insight: The visual of a ring biting into a swollen finger emphasizes total body water retention.
+- "A guy being photographed at several different focal lengths." Insight: The "camera cheat" metaphor—the fear that their face is a distorted version of reality.
+- "Pillsbury Dough Boy." Insight: A visual of "unnatural" puffiness that responds to touch; the ultimate anti-identity for a "skinny" person.
 
 ## Trigger Moments
 - "The instructors were going around doing the whole you can do it... then got to me and was like maybe you should stop." Insight: Public physical failure or a "crash" after exertion.
@@ -158,3 +203,6 @@ Explanation: The audience knows they have a problem (puffiness) and they are act
 - "During the Yearbook Photo Day... my face look horrendous." Insight: Major life milestones captured forever in "bad" photos.
 - "I catch my reflection in shop windows, I cringe and feel so ashamed." Insight: Everyday, unintended encounters with "uncontrolled" reflections.
 - "I was a bridesmaid in my best friend's wedding." Insight: High-pressure social events where they are forced to be photographed next to others, leading to "comparison trauma."
+- "The next morning... I needed lube to take my wedding band off." Insight: Waking up in the morning and seeing a "different person" in the mirror.
+- "I cringe looking back at the college days of throwing back a 6 pack... yikes to those pictures." Insight: Seeing a photo of themselves that makes them realize how much "weight" they were carrying in their face.
+- "Every time I eat I seem to get this facial swelling straight away." Insight: The immediate reaction after a meal that ruins an evening or event.
