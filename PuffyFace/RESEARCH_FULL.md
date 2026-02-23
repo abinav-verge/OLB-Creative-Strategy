@@ -29,6 +29,12 @@
 - "It’s just frustrating, I feel like I just don’t look like me, but I don’t even know what ‘me’ looks like." Insight: CORE INSIGHT. This is the psychological "Ground Zero"—a total disconnection from the physical self.
 - "I can look at one picture I just took and it’ll look alright but I can look back on it the next day and see something completely warped and different." Insight: This highlights how the perception of reality is broken; they cannot trust their own eyes or digital evidence.
 - "It hurts to lose that pretty privilege. I looked great until about 54. Now I'm 58, and I don't recognize myself anymore." Insight: The pain of "becoming invisible" to society creates a mourning process for their former status.
+- "I swear every mirror I look into is like I’m starring at a different person every time. Is this a symptom of bdd or could my mind be playing tricks on me?" Insight: The avatar is experiencing a loss of reality and self-trust, fearing they are mentally ill because they cannot hold a consistent mental image of their face.
+- "I see the eyebrows at different heights, one side of my face is noticeably broader than the other, wrinkles pronounced, ugh!" Insight: High-definition cameras act as a "harsh judge" that highlights perceived "defects" that aren't visible in habitual reflections.
+- "It’s 100% a BDD symptom, just your mind playing tricks on you... the worst consequence of this for me is not having any idea how other people see me when I’m in a social setting." Insight: Social interactions are tainted by a "hidden camera" anxiety, where they assume others are seeing the "ugly" version they see in photos.
+- "I look so very much worse [in photos]... it makes me feel like everyone who has ever complimented me / every guy who I've ever dated has completely lied to me." Insight: This isn't just vanity; it's a crisis of trust. They feel like a fraud whose "ugliness" is finally being exposed by the camera.
+- "I hate my fucking face so much it’s one of my biggest insecurities." Insight: Pure, visceral self-hatred triggered by the inability to align their internal identity with their external image.
+- "I see a genetic mess of a body. Very unfit, way smaller than I look in the mirror." Insight: For the fitness-focused, the camera robs them of their hard-earned progress, making them feel physically insignificant despite their efforts.
 
 ## Day-to-Day Struggles
 - "My phone is like 'no, I won’t unlock, I don’t know any puffy-eyed bitches' 🤣" Insight: The struggle is so real it interferes with basic technology, serving as a daily digital reminder of their "swelling."
@@ -49,6 +55,10 @@
 - "I can't even describe. It's just a DIFFERENT face... Sometimes I try to figure it out with selfies but different light/angles make me look like different people and I can't combine the impressions." Insight: The daily effort of trying to "triangulate" their true face is mentally exhausting and futile.
 - "The slightest change in their gaze has me spiralling and seeing myself as genuinely grotesque in the mirror." Insight: Social interactions are minefields; they interpret others’ micro-expressions as confirmation of their own perceived hideousness.
 - "I look in the mirror thinking, 'Ok, I look decent.' Then... an hour later feel like an ugly slug." Insight: The avatar undergoes multiple cycles of euphoria and despair every single day.
+- "I just wana know what I look like without having to check every 5 to 10 minutes." Insight: The problem is a compulsive, time-consuming loop of seeking "status updates" on their own face.
+- "I’m losing weight but my outfit did no favors for me... guess my outsides match my insides. Mih.." Insight: A "bad" image (security cam/mirror) reinforces a low internal sense of worth, leading to a "why bother" attitude toward self-care.
+- "I avoid eye contact with all mirrors. Its not good for my mental health... I'd rather go a whole day looking like shit and not knowing." Insight: Living in a state of "intentional blindness" to avoid the emotional crash of a "bad reflection."
+- "I’ve had to ban [my daughter] from it, because I can tell she doesn’t like how she looks and can see in real time how it’s effecting her self esteem." Insight: The struggle is intergenerational—parents are watching their children fall into the same trap of camera-induced dysmorphia.
 
 ## Victories
 - "I always use gua sha, it lessen the puffy face since you just woke up... it’s effective for me." Insight: Physical manipulation of the skin provides a sense of agency and immediate (if temporary) relief.
@@ -68,6 +78,10 @@
 - "I’ve found that going to the gym has been really helpful for this! it makes it so much more obvious that my perception of myself is hugely mediated by my mental state." Insight: Physical exertion provides a rare moment of neurochemical objective "safety."
 - "I did a month of Mounjaro... It clips the incessant food noise... my astronomically high cholesterol dropped 100 points." Insight: Medical intervention for weight provides a sense of regaining control over a body that felt like it was betraying them.
 - "I took out the hair extensions and false lashes and quit wearing makeup... It's actually freeing to not go through the hassle of trying to impress." Insight: Radical acceptance and "dropping the mask" can eventually lead to a peaceful, albeit difficult, liberation.
+- "The more I learn about BDD in a medical, objective, scientific way the better I feel." Insight: Understanding the "why" (optics, focal length, psychology) acts as a sedative for the anxiety.
+- "Find one mirror at home that I ‘trust’ and only use it. It reduces the insanity of checking multiple mirrors." Insight: Stability is found by limiting the data points; "safe" reflection zones provide temporary peace.
+- "I take good pictures of myself instead of just focusing on the bad ones... so I can remind myself, 'hey I dont look to bad.'" Insight: Using "curated evidence" to fight against the overwhelming "bad evidence."
+- "Get yourself small mirror that you like and take it with you... I like those small mirrors that sometimes come with powder." Insight: Carrying a "source of truth" helps maintain the self-image while in "hostile" environments (shopping, travel).
 
 ## Failures
 - "Ive got micro-needling done already and it did not help... I’m on 10mg accutane for 3 months and after that i feel like everything changed." Insight: High-end clinical treatments sometimes backfire or fail to address the underlying "fluid" issue, leading to deeper despair.
@@ -87,6 +101,10 @@
 - "I cut my hair recently and feel absolutely disgusting! ...the haircut just made it a 1000 times worse." Insight: Small cosmetic changes feel like permanent, catastrophic alterations to an already fragile self-image.
 - "I’ve been heavily underweight and athletic my whole life... and never had a strong jawline... I inherited the weak jawline genes." Insight: Realizing that "hard work" cannot overcome genetic "flaws" leads to deep resentment of the biological shell.
 - "My good days are getting lesser & lesser & don't exist actually. If I'm really acceptable looking I wouldn't feel this way." Insight: The failure of "mainstream" advice like "it's all in your head" or "have a positive mindset" has left them feeling alienated even from support groups.
+- "Every time I see myself pretty in a photo, the more I look at it, the more deformed I seem?" Insight: Even "good" evidence is fragile; over-analysis inevitably leads back to seeing "deformity."
+- "Go into 3 different stores a day... I look completely different in every mirror... I'm going insane please help." Insight: Searching for a "standard" in public environments is futile and leads to a breakdown of the sense of self.
+- "I already spend a fortune on my clothes, makeup and appearance in general... still feel like a troll." Insight: External consumerism cannot fix a perceptual glitch; you can't buy your way out of dysmorphia.
+- "I covered my mirror in paper leaving just a tiny aperture in the middle so i can shave." Insight: Extreme avoidance is a failed coping mechanism that turns the home into a prison.
 
 ## Goals
 - "I want to give off a more mature, 'pretty' vibe instead of a cute, kiddish vibe." Insight: They equate a slim, defined face with adulthood, authority, and "sophisticated" beauty.
@@ -104,6 +122,9 @@
 - "I just wish I could be just effortlessly gorgeous." Insight: They crave a state where they don't have to "manage" or "monitor" their face 24/7.
 - "I hope this helps me find a path to healing." Insight: They are actively searching for a psychological or biological explanation to stop the confusion.
 - "I want to see an honest and good man in the mirror and not some contrived entity that reflects someone I looked like 20 years ago." Insight: A desire for authentic aging that doesn't feel like a "decline" or a "lie."
+- "I just wana know what I look like." Insight: CORE INSIGHT - The ultimate goal is not necessarily to be "supermodel beautiful," but to have a stable, objective "Standard Version" of themselves.
+- "I want to look like my mirror image and not photo image haha." Insight: They want the "fluid," moving version of themselves to be the one that is "real" and recognized by others.
+- "Learn to maintain normal composure in front of the camera." Insight: They want to stop their face from "mutating" or "tensing up" the moment a lens is pointed at them.
 
 ## Beliefs
 - "Salt and sugar blow me up like a balloon... processed carbs and sugar do that to me." Insight: CORE INSIGHT. They believe the modern diet is a "poison" specifically targeted at their facial definition.
@@ -122,6 +143,10 @@
 - "I know if I was pretty I wouldn't be confused." Insight: A foundational belief that "true beauty" is static and unmistakable, and their confusion is proof of their ugliness.
 - "Women see themselves as a point in time... Men see women as a collection of points in time." Insight: A comforting (though questioned) belief that others might see their beauty even when they can't.
 - "The universe removes all the things we thought were us so we can uncover who we really are. It was never our looks." Insight: A spiritual coping mechanism used to survive the grief of aging.
+- "The mirror lies! Thank the gods." Insight: Some prefer the delusion of the mirror over the perceived "harsh truth" of the camera.
+- "A picture from a camera is the most accurate representation of how we actually look... the only image without personalized judgment." Insight: CORE INSIGHT - Deep down, many believe the "ugly" photo is the "real" them and the mirror is a brain-generated lie.
+- "Everyone is uglier than they think." Insight: A cynical protective belief used to rationalize their own perceived ugliness as a universal human condition.
+- "Mirrors in gyms are magic mirrors that contort to make you look bigger." Insight: The belief that businesses are intentionally manipulating their reflections to trick them into satisfaction.
 
 ## Desires
 - "I want to [get rid of my double chin] so I can [look like I fit into my clothes] so I can [feel like my outside matches my inside]." Insight: Deeper desire for *authenticity*—they feel like they are wearing a "puffy suit" that isn't them.
@@ -139,6 +164,9 @@
 - "I want to... find out what I really look like so I can... stop worrying constantly about my looks so I can... be a normal attractive person." Insight: CORE INSIGHT. The ultimate desire is "normality"—the ability to exist without the cognitive load of self-monitoring.
 - "I want to... get rid of this 'moon face' so I can... feel like myself again so I can... stop hiding in my house." Insight: High desire for physical "deflation" (inflammation/weight reduction) to end self-imposed social exile.
 - "I want to... look like a 'baddie' in every light so I can... stop questioning every little thing about my face so I can... gain a little bit of confidence." Insight: Desire for "universal symmetry" regardless of environment.
+- "I wish I would be invisible." Insight: I want to stop being perceived so I can stop worrying about the "error" between my internal and external self.
+- "I want to reach a point where I don't give a flying fuck how I look... it’s kind of refreshing not caring anymore." Insight: I want to transcend the physical so I can finally have "inner peace."
+- "I want to be more than a pretty girl." Insight: I want my identity to be rooted in my actions and spirit ("beauty that moves") rather than a frozen, 2-D pixelated image.
 
 ## Objections
 - "I am not willing to give up on my rice and noodles." Insight: Total restriction is a dealbreaker; they need a solution that allows for "normal" life and dietary enjoyment.
@@ -156,6 +184,9 @@
 - "I don’t have that option financially. I’m aging ok, but not spectacularly." Insight: Financial constraints prevent them from pursuing the "modern medicine" solutions they see their peers using.
 - "I’m insecure and appearance obsessed... but I threw in the grad school part to look less vapid and shallow." Insight: Fear of being judged as "vain" or "shallow" prevents them from being honest about how much the problem hurts.
 - "I've seen so many people with awful results. They don’t look younger—they just look puffy and strange." Insight: A fear that medical solutions (Botox/fillers) will make them look like a "doll," further distancing them from their true self.
+- "Yea but I always tell myself ‘what if that mirror is lying like the others’. Know what I mean?" Insight: Radical skepticism—if one medium is a lie (camera), they fear all media (mirrors, eyes of others) are also lies.
+- "Neither mirror or camera is accurate, unfortunately." Insight: A sense of hopelessness that "the truth" is fundamentally unattainable.
+- "If I look good in the mirror, I SHOULD look good in photos!! But that’s a whole other topic." Insight: The refusal to accept "technical" excuses (focal length, lighting) because the emotional impact of the "bad" photo is too strong.
 
 ## Level of Awareness
 - **Solution Aware / Product Aware**: Most of this audience is actively debating specific interventions like Gua Sha, Masseter Botox, and Potassium supplements.
@@ -171,6 +202,9 @@ Explanation: The audience knows they have a problem (fluctuating appearance, "BD
 - "BDD completely messes up my perception... It causes me so much stress because I don’t know which version I see of myself is the real me." Insight: They recognize the psychological disorder but are still searching for why the "morphing" feels so physically real.
 - **Problem Aware:** Most users are acutely aware of the problem (looking different every day, facial asymmetry, weight gain) but are confused about the cause, oscillating between blaming "BDD," "hormones," "sugar," or "poor lighting."
 - "**I can conclude I don't have BDD but this is the one place I could vent.**" Insight: Even those who reject the clinical label are obsessed with the symptoms. They are looking for a solution that bridges the gap between the "broken brain" and "broken body."
+- **Level of Awareness: Problem Aware**
+- The target is acutely aware of the symptoms (inconsistent reflections, "troll" photos, mirror-checking compulsions) but is deeply confused about the *cause* (is it optics or BDD?) and is only beginning to search for a definitive "Solution."
+- "[exact quote] Is this a symptom of bdd or could my mind be playing tricks on me?" Insight: They have identified the problem but are oscillating between a technical/optical diagnosis and a mental health diagnosis.
 
 ## Emotions & Identity
 - **The "Skinny-Fat" Identity**: "Sending love from the skinny-fat fat face club." Insight: They identify as a specific sub-class of people for whom "normal" fitness advice fails.
@@ -193,6 +227,10 @@ Explanation: The audience knows they have a problem (fluctuating appearance, "BD
 - **The Invisible Woman:** "Losing that [pretty privilege]... and being treated like another guy... it made me want to die." Insight: They feel they have lost their "currency" and their feminine identity is being erased.
 - **The Imposter:** "A lot of us has this imposter syndrome... they can’t understand how hard it is to not know how your exterior actually looks like." Insight: They feel like they are "catfishing" the world or themselves.
 - **Grief:** "I cried tears of real blood over it once because I was so ashamed and hurt." Insight: This is not vanity; this is profound mourning for a lost self.
+- "Who is this person? i don’t know them. i get disgusted seeing myself." Insight: The core emotion is **Dissociation**. They feel like a stranger in their own skin.
+- "I’m like a 4/10 that unintentionally looks sad or worried at all times and can’t smile to save his life." Insight: The identity is "The Defective"—someone who believes their face is a failure of communication.
+- "I have no idea what I really look like to others but I take solace in the fact that there are thousands of different ideas of who you look like." Insight: The search for **Authenticity**. They want to know which "version" of them is the one that actually exists in the hearts of others.
+- "I look like a thumb. I'm not joking. I don't know how it goes so horribly wrong." Insight: The emotion is **Humiliation**. The fear that their "true" form is something comical and grotesque.
 
 ## Real Customer Language
 - "Snatched" — Why this phrase matters: It represents the ultimate goal of sharp, surgical-like definition achieved through non-surgical means.
@@ -220,6 +258,11 @@ Explanation: The audience knows they have a problem (fluctuating appearance, "BD
 - "**Moon face**" — Why this phrase matters: Specifically identifies the inflammatory/cortisol-bloat that plagues their mirrors.
 - "**Pretty privilege**" — Why this phrase matters: Recognizes that beauty is a social commodity they feel they are losing.
 - "**Second puberty**" — Why this phrase matters: A colloquial way to describe the terrifying hormonal changes in the 20s.
+- "Funhouse mirror" — Why this phrase matters: It describes the feeling of a reality-warping distortion that they can't control.
+- "Mirror face" — Why this phrase matters: It acknowledges the "performance" they put on for themselves that they can't replicate for others.
+- "Photogenic challenge" — Why this phrase matters: A way to pathologize the "glitch" between their 3D self and 2D image.
+- "World crumbles" — Why this phrase matters: Shows the catastrophic emotional weight a single "bad" photograph carries.
+- "Broken faced troll" — Why this phrase matters: Represents the extreme, self-deprecating baseline they revert to when they see a "bad" reflection.
 
 ## Visual Cues
 - "My cheeks will cast a shadow on my undereyes, and make them look even darker and sunken." Insight: The interplay of shadow and "lumps" creates a visual of decay or illness.
@@ -237,6 +280,9 @@ Explanation: The audience knows they have a problem (fluctuating appearance, "BD
 - "**Quasimodo**" and "**Monster with exaggerated features**" Insight: These are the internal "horror" images they see in the mirror.
 - "**The Bathroom Mirror vs. The Phone Camera**" Insight: These are the "battleground" objects where the identity crisis happens.
 - "**Doughy, soft faces**" (of youth) vs. "**Puckered, wrinkled mouth**" Insight: The high-contrast visual of what they lost vs. what they have.
+- "I look like a puffy psychotic potato having the most fun in the room." Insight: A vivid, self-mocking image of the gap between their internal joy and external appearance.
+- "Standing too close + brutal lighting turns normal shadows into 'wtf is my face.'" Insight: The visual of "The Inspection"—the high-pressure, close-up scrutiny that destroys self-esteem.
+- "I’m a fat, ugly cow with red cheeks and thin, stringy hair." Insight: The "Internalized Critic" visualization—a checklist of flaws that they believe everyone else is "staring" at.
 
 ## Trigger Moments
 - "Reconnect with old high school friends." Insight: The "Reunion Trigger"—seeing others' faces triggers a comparison that highlights one's own perceived "decline."
@@ -254,3 +300,6 @@ Explanation: The audience knows they have a problem (fluctuating appearance, "BD
 - "**When I'm on the train underground because the lighting... is disgustingly bad.**" Insight: The moment a harsh light hits them and "reveals" the monster.
 - "**I did a professional photoshoot... and those professional pictures are THE WORST.**" Insight: The trauma of seeing a high-definition version of themselves that doesn't match their mental map.
 - "**Candid pictures or those store self check out cameras.**" Insight: Unexpectedly catching a reflection when the "guard" is down, leading to an immediate spiral.
+- "But when I went to kohls today and looked in the fitting room mirror... I looked so different and ugly and then it started bothering me." Insight: Shopping for clothes—a moment where they *must* look at themselves to make a decision—triggers a spiral.
+- "I feel somewhat cute today, but recoiled when I saw myself on our security cams." Insight: Seeing an "unfiltered," unaware version of oneself captured by technology.
+- "Zoom is honestly the bane of my existence... just my awkward gesticulating self in all my oily-skinned glory." Insight: Routine work calls that force them to stare at their own "uncontrolled" face for hours at a time.
