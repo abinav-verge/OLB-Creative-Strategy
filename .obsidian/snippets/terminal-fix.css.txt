@@ -1,0 +1,14 @@
+/* Target the terminal plugin's input highlighting */
+.xterm-rows div {
+    background-color: transparent !important;
+}
+
+/* Specifically for common Obsidian Terminal plugins */
+.terminal-container .xterm-cursor-layer {
+    background-color: transparent !important;
+}
+
+/* If the bar is caused by line-highlighting in the theme */
+.markdown-rendered code, .terminal {
+    --line-highlight-bg: transparent;
+}
