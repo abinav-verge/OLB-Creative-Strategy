@@ -131,6 +131,85 @@
 
 ### **Level of Awareness**
 
+- "I am so sick and tired of it." Insight: This isn't just a mild annoyance; it’s a source of chronic exhaustion and emotional drainage.
+- "I feel like it’s ruining my appearance a lot." Insight: Her self-worth is directly tied to the "sharpness" of her facial features; puffiness feels like a veil hiding her true beauty.
+- "I look like an ogre." Insight: Deep-seated dysmorphia where she views temporary inflammation as a fundamental physical deformity.
+- "I’m desperateee to get rid of this fat, cause I'm only 96 pounds!" Insight: There is a terrifying disconnect between her low body weight and her "fat" face, leading to extreme desperation.
+- "Surely this much puffiness isn’t normal?!?!" Insight: Fear that her body is "broken" or reacting in a way that others' bodies don't.
+
+### **Day-to-Day Struggles**
+- "Neither does anyone have time every morning [for gua sha]." Insight: The maintenance required to look "normal" is becoming a logistical burden.
+- "My face is constantly puffy [working in a bakery]." Insight: Her environment/job feels like an obstacle to her beauty goals.
+- "The problem is on a hangover I never want to eat healthily and end up eating more salty food I’m my own worst enemy." Insight: She is trapped in a self-sabotaging loop where the "cure" (healthy eating) is hardest to achieve when the "symptom" (bloat) is worst.
+
+### **Victories**
+- "After something like nine weeks of no sugar I noticed how much my puffiness had gone down." Insight: Significant dietary restriction provides the only "proof" of success she’s found.
+- "The difference is SIGNIFICANT [using a face massager]." Insight: She responds to visible, immediate mechanical drainage.
+- "Wegovy helped a ton for me. It’s like I’m deflating." Insight: Medical intervention provides the extreme "deflation" result she craves.
+
+### **Failures**
+- "Everybody says guasha but it barely makes a difference." Insight: Standard "influencer" advice has failed her, leading to skepticism of "natural" trends.
+- "As soon as I started eating crap again at Christmas it came immediately back." Insight: Results feel fragile and easily lost, leading to a "perpetual diet" mindset.
+- "I use a micro current device and even that only helps marginally." Insight: Even high-tech, expensive home tools aren't providing the "snatched" look she wants.
+
+### **Goals**
+- "How do I get rid of all this bloating/puffiness/fat/ whatever it’s called?" Insight: She is looking for a definitive label and a permanent extraction of the "heaviness."
+- "I’m learning makeup contouring tricks to camouflage it." Insight: Her interim goal is to hide her face until she can fix it.
+- "Leaning out my face." Insight: She wants facial "leaness" that matches the rest of her thin body.
+
+### **Beliefs**
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
+- "Neither does anyone have time every morning [for gua sha]." Insight: The maintenance required to look "normal" is becoming a logistical burden.
+- "My face is constantly puffy [working in a bakery]." Insight: Her environment/job feels like an obstacle to her beauty goals.
+- "The problem is on a hangover I never want to eat healthily and end up eating more salty food I’m my own worst enemy." Insight: She is trapped in a self-sabotaging loop where the "cure" (healthy eating) is hardest to achieve when the "symptom" (bloat) is worst.
+
+### **Victories**
+- "After something like nine weeks of no sugar I noticed how much my puffiness had gone down." Insight: Significant dietary restriction provides the only "proof" of success she’s found.
+- "The difference is SIGNIFICANT [using a face massager]." Insight: She responds to visible, immediate mechanical drainage.
+- "Wegovy helped a ton for me. It’s like I’m deflating." Insight: Medical intervention provides the extreme "deflation" result she craves.
+
+### **Failures**
+- "Everybody says guasha but it barely makes a difference." Insight: Standard "influencer" advice has failed her, leading to skepticism of "natural" trends.
+- "As soon as I started eating crap again at Christmas it came immediately back." Insight: Results feel fragile and easily lost, leading to a "perpetual diet" mindset.
+- "I use a micro current device and even that only helps marginally." Insight: Even high-tech, expensive home tools aren't providing the "snatched" look she wants.
+
+### **Goals**
+- "How do I get rid of all this bloating/puffiness/fat/ whatever it’s called?" Insight: She is looking for a definitive label and a permanent extraction of the "heaviness."
+- "I’m learning makeup contouring tricks to camouflage it." Insight: Her interim goal is to hide her face until she can fix it.
+- "Leaning out my face." Insight: She wants facial "leaness" that matches the rest of her thin body.
+
+### **Beliefs**
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
 ## Victories
 
 ## Failures
@@ -224,6 +303,63 @@
 
 ### **Level of Awareness**
 
+- "After something like nine weeks of no sugar I noticed how much my puffiness had gone down." Insight: Significant dietary restriction provides the only "proof" of success she’s found.
+- "The difference is SIGNIFICANT [using a face massager]." Insight: She responds to visible, immediate mechanical drainage.
+- "Wegovy helped a ton for me. It’s like I’m deflating." Insight: Medical intervention provides the extreme "deflation" result she craves.
+
+### **Failures**
+- "Everybody says guasha but it barely makes a difference." Insight: Standard "influencer" advice has failed her, leading to skepticism of "natural" trends.
+- "As soon as I started eating crap again at Christmas it came immediately back." Insight: Results feel fragile and easily lost, leading to a "perpetual diet" mindset.
+- "I use a micro current device and even that only helps marginally." Insight: Even high-tech, expensive home tools aren't providing the "snatched" look she wants.
+
+### **Goals**
+- "How do I get rid of all this bloating/puffiness/fat/ whatever it’s called?" Insight: She is looking for a definitive label and a permanent extraction of the "heaviness."
+- "I’m learning makeup contouring tricks to camouflage it." Insight: Her interim goal is to hide her face until she can fix it.
+- "Leaning out my face." Insight: She wants facial "leaness" that matches the rest of her thin body.
+
+### **Beliefs**
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
+- "Everybody says guasha but it barely makes a difference." Insight: Standard "influencer" advice has failed her, leading to skepticism of "natural" trends.
+- "As soon as I started eating crap again at Christmas it came immediately back." Insight: Results feel fragile and easily lost, leading to a "perpetual diet" mindset.
+- "I use a micro current device and even that only helps marginally." Insight: Even high-tech, expensive home tools aren't providing the "snatched" look she wants.
+
+### **Goals**
+- "How do I get rid of all this bloating/puffiness/fat/ whatever it’s called?" Insight: She is looking for a definitive label and a permanent extraction of the "heaviness."
+- "I’m learning makeup contouring tricks to camouflage it." Insight: Her interim goal is to hide her face until she can fix it.
+- "Leaning out my face." Insight: She wants facial "leaness" that matches the rest of her thin body.
+
+### **Beliefs**
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
 ## Goals
 
 ## Beliefs
@@ -289,6 +425,43 @@
 
 ### **Level of Awareness**
 
+- "How do I get rid of all this bloating/puffiness/fat/ whatever it’s called?" Insight: She is looking for a definitive label and a permanent extraction of the "heaviness."
+- "I’m learning makeup contouring tricks to camouflage it." Insight: Her interim goal is to hide her face until she can fix it.
+- "Leaning out my face." Insight: She wants facial "leaness" that matches the rest of her thin body.
+
+### **Beliefs**
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
+- "It’s probably body dysmorphia." Insight: She is starting to believe the problem might be in her head because she can't solve it physically.
+- "Alcohol is literally poison... the only thing that's going to stop the puffiness is to stop drinking." Insight: She believes "clean living" is the only path, even if she resents it.
+- "I carry mine [fat] in my cheeks... even when I was 18 and 100 pounds." Insight: She believes she is genetically "cursed" to have a puffy face regardless of effort.
+
+### **Desires**
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
 ## Desires
 
 ## Objections
@@ -323,6 +496,23 @@
 - **Underlying Issues:** "But what if it's just my bone structure and there is no fix?"
 
 ---
+
+### **Level of Awareness**
+
+- "I want to get rid of my puffy face so I can feel pretty and 'thin' so I can stop feeling like an 'ogre' when I wake up." Insight: To align her external face with her internal identity of being a "fit" person.
+- "I want to find a quick fix so I can indulge in salty foods/alcohol so I can live a normal social life without 'punishment' the next morning." Insight: She craves the "cheat code" that allows for indulgence without physical consequences.
+- "I want to rule out medical issues so I can stop worrying so I can finally have peace of mind about my health." Insight: She wants a doctor to tell her it's not "just her" or "her fault."
+
+### **Objections**
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
+
+### **Level of Awareness**
+
+- "That’s the advice I didn’t want to hear [stop drinking]... in denial!!!" Insight: She will reject any solution that requires total lifestyle overhaul or giving up social pleasures.
+- "Gua sha... barely makes a difference and neither does anyone have time." Insight: She will reject solutions that are time-consuming or offer "marginal" results.
+- "I’m an almond daughter so I literally do everything healthy in the book but see zero difference." Insight: She is "burnt out" on health advice and will be skeptical of anything "clean" or "natural."
 
 ### **Level of Awareness**
 
@@ -393,6 +583,56 @@
 - **The Social Comparison:** "All my friends say... my face is too puffy." Insight: Peer comments or "helpful" criticism from friends making them self-conscious.
 - **The Special Event:** "I want to put makeup on very soon... but I can't." Insight: A morning event or work meeting where they need to look "human" immediately.
 
+**Level: Solution Aware**
+The avatar knows she has a problem (puffy face) and knows there are various solutions (Gua Sha, diet changes, supplements, medical tests), but she hasn't found the *one* that works for her specific "type" of puffiness.
+- "Any skincare methods and even some natural ways?" Insight: She is actively shopping for a category of solution.
+- "Are there any other symptoms if there’s thyroid issue?" Insight: She is investigating more "drastic" categories of solutions (medical).
+
+### **Emotions & Identity**
+- **CORE INSIGHT: The "Health-Obsessed Ogre" Paradox.** She identifies as someone who "does everything healthy in the book," yet feels her face betrays her by looking "unhealthy" and "puffy."
+- "I look like shrek without the green." Insight: A deep sense of shame; she feels her face is a "monstrous" version of herself.
+- "I was honestly losing the will to live." Insight: (In cases of extreme symptoms) This is not just "vanity"—it is a desperate struggle for vitality and identity.
+- "I am so sick and tired of it." Insight: Frustration at the lack of ROI for her healthy lifestyle.
+
+### **Real Customer Language**
+- "Almond daughter" — Why this phrase matters: Signals she comes from a background of high aesthetic standards and restricted eating.
+- "Snatched" — Why this phrase matters: The ultimate goal; the opposite of puffy.
+- "Deflating" — Why this phrase matters: Describes the feeling of rapid fluid loss.
+- "Carb face" — Why this phrase matters: A specific derogatory term used to blame diet for facial shape.
+- "Ogre/Shrek" — Why this phrase matters: Extreme self-deprecating language used to describe the morning reflection.
+
+### **Visual Cues**
+- "I just look like an old troll." Insight: The fear of premature aging caused by sagging/puffiness.
+- "It’s like I’m deflating." Insight: The visual of a balloon losing air; she wants to see the "structure" of her face.
+- "Submerge your head into a sink full of ice." Insight: A visual of "shock therapy" desperation to "freeze" the face back into shape.
+
+### **Trigger Moments**
+- "Woke up with a puffy eye... after drinking a lot of water and a large cup of tea." Insight: The frustration of a "healthy" habit (drinking water) backfiring into a beauty disaster the next morning.
+- "The morning after I’ve drunk alcohol or eaten too much fast food." Insight: The "Day After" regret where the mirror forces a reckoning with her choices.
+- "Christmas... as soon as I started eating crap again it came immediately back." Insight: Holiday social pressure and the resulting "ruined" photos.
+
+- **CORE INSIGHT: The "Health-Obsessed Ogre" Paradox.** She identifies as someone who "does everything healthy in the book," yet feels her face betrays her by looking "unhealthy" and "puffy."
+- "I look like shrek without the green." Insight: A deep sense of shame; she feels her face is a "monstrous" version of herself.
+- "I was honestly losing the will to live." Insight: (In cases of extreme symptoms) This is not just "vanity"—it is a desperate struggle for vitality and identity.
+- "I am so sick and tired of it." Insight: Frustration at the lack of ROI for her healthy lifestyle.
+
+### **Real Customer Language**
+- "Almond daughter" — Why this phrase matters: Signals she comes from a background of high aesthetic standards and restricted eating.
+- "Snatched" — Why this phrase matters: The ultimate goal; the opposite of puffy.
+- "Deflating" — Why this phrase matters: Describes the feeling of rapid fluid loss.
+- "Carb face" — Why this phrase matters: A specific derogatory term used to blame diet for facial shape.
+- "Ogre/Shrek" — Why this phrase matters: Extreme self-deprecating language used to describe the morning reflection.
+
+### **Visual Cues**
+- "I just look like an old troll." Insight: The fear of premature aging caused by sagging/puffiness.
+- "It’s like I’m deflating." Insight: The visual of a balloon losing air; she wants to see the "structure" of her face.
+- "Submerge your head into a sink full of ice." Insight: A visual of "shock therapy" desperation to "freeze" the face back into shape.
+
+### **Trigger Moments**
+- "Woke up with a puffy eye... after drinking a lot of water and a large cup of tea." Insight: The frustration of a "healthy" habit (drinking water) backfiring into a beauty disaster the next morning.
+- "The morning after I’ve drunk alcohol or eaten too much fast food." Insight: The "Day After" regret where the mirror forces a reckoning with her choices.
+- "Christmas... as soon as I started eating crap again it came immediately back." Insight: Holiday social pressure and the resulting "ruined" photos.
+
 ## Real Customer Language
 
 - **Incongruence:** "It looks like I'm... heavier than I actually am." They feel lied to by their own face.
@@ -426,6 +666,22 @@
 - **The Social Comparison:** "All my friends say... my face is too puffy." Insight: Peer comments or "helpful" criticism from friends making them self-conscious.
 - **The Special Event:** "I want to put makeup on very soon... but I can't." Insight: A morning event or work meeting where they need to look "human" immediately.
 
+- "Almond daughter" — Why this phrase matters: Signals she comes from a background of high aesthetic standards and restricted eating.
+- "Snatched" — Why this phrase matters: The ultimate goal; the opposite of puffy.
+- "Deflating" — Why this phrase matters: Describes the feeling of rapid fluid loss.
+- "Carb face" — Why this phrase matters: A specific derogatory term used to blame diet for facial shape.
+- "Ogre/Shrek" — Why this phrase matters: Extreme self-deprecating language used to describe the morning reflection.
+
+### **Visual Cues**
+- "I just look like an old troll." Insight: The fear of premature aging caused by sagging/puffiness.
+- "It’s like I’m deflating." Insight: The visual of a balloon losing air; she wants to see the "structure" of her face.
+- "Submerge your head into a sink full of ice." Insight: A visual of "shock therapy" desperation to "freeze" the face back into shape.
+
+### **Trigger Moments**
+- "Woke up with a puffy eye... after drinking a lot of water and a large cup of tea." Insight: The frustration of a "healthy" habit (drinking water) backfiring into a beauty disaster the next morning.
+- "The morning after I’ve drunk alcohol or eaten too much fast food." Insight: The "Day After" regret where the mirror forces a reckoning with her choices.
+- "Christmas... as soon as I started eating crap again it came immediately back." Insight: Holiday social pressure and the resulting "ruined" photos.
+
 ## Visual Cues
 
 ## Trigger Moments
@@ -452,3 +708,16 @@
 - **The Camera Flash:** "Recently I've tried to film myself more... I've noticed my face is very puffy and tired looking." Insight: Seeing oneself through the objective lens of a camera vs. a mirror.
 - **The Social Comparison:** "All my friends say... my face is too puffy." Insight: Peer comments or "helpful" criticism from friends making them self-conscious.
 - **The Special Event:** "I want to put makeup on very soon... but I can't." Insight: A morning event or work meeting where they need to look "human" immediately.
+
+- "I just look like an old troll." Insight: The fear of premature aging caused by sagging/puffiness.
+- "It’s like I’m deflating." Insight: The visual of a balloon losing air; she wants to see the "structure" of her face.
+- "Submerge your head into a sink full of ice." Insight: A visual of "shock therapy" desperation to "freeze" the face back into shape.
+
+### **Trigger Moments**
+- "Woke up with a puffy eye... after drinking a lot of water and a large cup of tea." Insight: The frustration of a "healthy" habit (drinking water) backfiring into a beauty disaster the next morning.
+- "The morning after I’ve drunk alcohol or eaten too much fast food." Insight: The "Day After" regret where the mirror forces a reckoning with her choices.
+- "Christmas... as soon as I started eating crap again it came immediately back." Insight: Holiday social pressure and the resulting "ruined" photos.
+
+- "Woke up with a puffy eye... after drinking a lot of water and a large cup of tea." Insight: The frustration of a "healthy" habit (drinking water) backfiring into a beauty disaster the next morning.
+- "The morning after I’ve drunk alcohol or eaten too much fast food." Insight: The "Day After" regret where the mirror forces a reckoning with her choices.
+- "Christmas... as soon as I started eating crap again it came immediately back." Insight: Holiday social pressure and the resulting "ruined" photos.
