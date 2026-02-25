@@ -1,0 +1,68 @@
+{
+  "custom_values": [
+    {
+      "variable": "Format",
+      "value": "BenefitCallout",
+      "description": "Visual device using lines or labels to point out specific product features or benefits",
+      "first_seen_in_file": "476229399_496791429780761_1770495355339806440_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "PopUpStyle",
+      "description": "Mimics phone notification, alert, or pop-up interface with interactive elements (Accept/Decline buttons, etc.)",
+      "first_seen_in_file": "502857969_1475824920247459_4005612402698024878_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "Timeline",
+      "description": "Shows progressive results over time periods (e.g., 'After 3 days, 14 days, 30 days') with increasing benefits",
+      "first_seen_in_file": "526120441_712525218475845_3282391370083572978_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "Editorial",
+      "description": "Mimics article or blog post style with headline/subheadline format, often poses question or reveals insight",
+      "first_seen_in_file": "530679549_1122786169910482_8539731593083074555_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "TextMessage",
+      "description": "Mimics text message or chat conversation interface (iMessage bubbles, SMS style) showing peer-to-peer dialogue",
+      "first_seen_in_file": "571149254_3752727925023722_3247335491099565925_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "Billboard",
+      "description": "Mockup of outdoor billboard or large-format advertising placement on buildings/highways",
+      "first_seen_in_file": "584334025_2344045086049686_1763641575271365567_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "Collage",
+      "description": "2x2 multi-panel grid combining product shots, lifestyle images, and stat copy into a single creative unit",
+      "first_seen_in_file": "635048453_1385125742905139_7930792526260635309_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    },
+    {
+      "variable": "Format",
+      "value": "StoriesAMA",
+      "description": "Mimics Instagram Stories Ask Me Anything interactive Q&A sticker format with viewer question and overlaid response text on a photo",
+      "first_seen_in_file": "637302325_1456588259396535_3754863536401387154_n.jpg",
+      "confirmed_by_user": true,
+      "date_added": "2026-02-25"
+    }
+  ]
+}
